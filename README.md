@@ -1,18 +1,13 @@
 
-Hi 👋
+Hi 👋 Welcome to my GitHub page!
 
-Daniel Lis here, a public policy professional with a passion for digital assets and international economic and finance policy. I'm currently the Director of Public Policy at GoQuant Technologies Inc., where I lead the company's global public policy engagement efforts.
+I'm Daniel Lis, an economic policy professional, currently based in NYC working in digital assets and international finance policy. I've previously consulted with the Federal Reserve Bank of New York's Market Group and served as the Director of Public Policy at GoQuant Technologies Inc., where I lead the company's global policy engagement efforts.
 
-I'm passionate about using technology to solve real-world problems, and I'm always looking for new ways to collaborate with others to make a difference. 🌎🤖
+Interested in discussing the following: 
 
-In my spare time, I enjoy playing basketball and chess, and taking in musical theatre. 🏀🎭♟️
-
-Hit me up if you're interested in chatting about any of the following:
-
-Digital assets and cryptocurrency 💰🪙
-International economic and finance policy 🌍📈
-Technology and innovation 💻💡
-Public policy and advocacy ⚖️📣
+Digital assets and cryptocurrency 
+International economic and finance policy 
+Technology and innovation 
 Basketball, chess, and musical theatre 🏀🎭♟️
 
-I'm also always open to new challenges and opportunities, so feel free to reach out if you have anything in mind. 😉
+I'm also always open to new challenges and opportunities, so feel free to reach out if you have anything in mind. 
